@@ -1,4 +1,4 @@
-- ⚡ Fun fact: The highest award in journalism is being killed by the CIA
+- ⚡ 3rd Year Student at Turku University of Applied Sciences!
 
 <!---
 Elmerikallio/Elmerikallio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
